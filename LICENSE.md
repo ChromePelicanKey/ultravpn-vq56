@@ -1,4 +1,4 @@
-
+Enhance your UltraVPN experience with secure UltraVPN Extension | WireGuard-support + camouflage-mode, the #1 extension. Includes WireGuard-support and camouflage-mode for a safer
 
 
 
